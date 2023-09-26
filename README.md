@@ -1,1 +1,1 @@
-# takeoverz
+# The website is under development. 
